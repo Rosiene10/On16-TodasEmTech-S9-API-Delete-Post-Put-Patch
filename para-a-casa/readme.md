@@ -1,0 +1,1 @@
+Eu não assistir essa aula no dia  mas conseguir rever quase toda, tive problemas e fiquei bem atrasada com as tarefas mas estou correndo e estudando para conseguir entregar as tarefas em atraso. consegui entender um pouco sobre o assunto da respectiva semana. 
